@@ -1,0 +1,2 @@
+# komputer
+1zOL0KMEbUOXNUPqEVJgZrNIl5y_4zR2AfsGGWXyARoxR5Eqr
